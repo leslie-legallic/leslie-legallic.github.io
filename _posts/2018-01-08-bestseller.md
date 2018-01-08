@@ -42,7 +42,7 @@ J'ai ce trio de Sleek depuis presque 1 an & je ne m'en sépare pas. Ultra pigmen
 J'aurais pu mettre presque tous les mascaras de Yves Rocher mais pour changer un peu je vous présente le Extraordinary Multipliacator de Pro's.
 <center><img src="img/etape/rouge.png" alt="Drawing" style="max-width: 650px"></center>
 <center><img src="img/BESTCHEAPSELLER/rouge.jpg" alt="Drawing" style="max-width: 600px"></center>
-Les meilleures rouges à lèvres pas cher pour moi ce sont les rouges sans transfert de chez Sephora, j'aime toutes les teintes & ils ont une tenue de folie.
+Les meilleures rouges à lèvres pas cher pour moi, ce sont les rouges sans transfert de chez Sephora, j'aime toutes les teintes & ils ont une tenue de folie.
 
 J'espère que cet article ou je vous présente les produits que je trouve les meilleures à bas prix vous aura plu.
 Je vous retrouve très bientôt dans un prochain article. Kiss.
